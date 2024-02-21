@@ -76,6 +76,6 @@ Passionate about building robust systems, I strive to improve the efficiency and
 >
 > <p>- Publius Flavius Vegetius Renatus</p>
 
-_Quote by the Roman general Publius Flavius Vegetius Renatus [Vegetius](https://www.amazon.com/RE-MILITARI-VEGETIUS-Complete-Official/dp/1697849075/)_
+_Quote by the Roman general "Publius Flavius Vegetius Renatus" [Vegetius](https://www.amazon.com/RE-MILITARI-VEGETIUS-Complete-Official/dp/1697849075/)_
 
 <br>
