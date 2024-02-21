@@ -70,7 +70,7 @@ Passionate about building robust systems, I strive to improve the efficiency and
 <img alt="Oracle" src ="https://img.shields.io/badge/oracle-%23F00000.svg?style=for-the-badge&logo=oracle&logoColor=white" />
 <br>
 
-## 📣 How about a Suits quote before you go?
+## 📣 How about a Vegetius quote before you go?
 
 > Therefore let him who desires peace prepare for war.
 >
