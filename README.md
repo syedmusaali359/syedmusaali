@@ -72,10 +72,10 @@ Passionate about building robust systems, I strive to improve the efficiency and
 
 ## 📣 How about a Suits quote before you go?
 
-> No kicking. No biting. No rabbit punches.
+> Therefore let him who desires peace prepare for war.
 >
-> <p>- Harvey Specter</p>
+> <p>- Publius Flavius Vegetius Renatus</p>
 
-_Quote are from [Suits](https://www.imdb.com/title/tt1632701/)_
+_Quote by the Roman general Publius Flavius Vegetius Renatus [Vegetius](https://www.amazon.com/RE-MILITARI-VEGETIUS-Complete-Official/dp/1697849075/)_
 
 <br>
